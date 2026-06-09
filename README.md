@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-VEBJ951229MCSLTN01
+VEBJ951229MCSLTN01
